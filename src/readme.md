@@ -4,4 +4,4 @@ es una cantante, compositora, modelo y productora estadounidense.
 Su música destaca por su estilizada calidad cinematográfica,
 su estilo retro, sus temas de romance trágico, glamur y melancolía
 y sus referencias a la cultura pop, particularmente a los Estados 
-Unidos entre los años 1940 y 1960.1
+Unidos entre los años 1940 y 1960.1 
